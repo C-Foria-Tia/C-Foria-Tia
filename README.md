@@ -31,4 +31,5 @@
 日本語翻訳のお手伝いについて
 
 
-"I’d love to help with the Japanese translation where I can, though there’s a strong chance I might rely on machine translation!
+I’d love to help with the Japanese translation for the parts I can! 
+*(though I’ll probably rely heavily on machine translation—in fact, I might even be using it to write this exact message—and there’s a solid chance I might hit a wall and give up halfway through lol)*
