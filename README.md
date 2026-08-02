@@ -28,3 +28,7 @@
 
 今、僕の耳に深く響くのは、あのバンドが奏でる「butterfly」という名の光。たくさんの音が、一つの大きな光になる瞬間。それは、言葉にできないほど、美しい。
 
+日本語翻訳のお手伝いについて
+
+
+"I’d love to help with the Japanese translation where I can, though there’s a strong chance I might rely on machine translation!
